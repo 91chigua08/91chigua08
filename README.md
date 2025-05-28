@@ -1,16 +1,16 @@
 91吃瓜最新地址更新于2025年05月28日
 
-91吃瓜最新地址 https://91gua05.com（请复制到浏览器打开）
+91吃瓜最新地址 https://91gua05.com （请复制到浏览器打开）
 
 永久地址（需VPen、科学上网） https://91cg08.com （请复制到浏览器打开）
 
 加入微信扣扣粉丝群 https://91gua05.com?path=/qun.html （请复制到浏览器打开）
 
-Telegram官方用户群 https://t.me/jycg_91（请复制到浏览器打开）
+Telegram官方用户群 https://t.me/jycg_91 （请复制到浏览器打开）
 
 91吃瓜官方商务： https://t.me/cg91_66 （请复制到浏览器打开）
 
-失联获取最新地址方法：发任意内容到邮箱：91cg@pm.me
+失联获取最新地址方法：发任意内容到邮箱： 91cg@pm.me
 
 网址打不开？？？ 1.请切换网络WIFI/4G/5G或者使用科学上网工具（VP恩） 2.请输入完整地址到设备访问，防止不良劫持浏览请带上 https:// 3.更换浏览器为Alook浏览器、edge浏览器、Chrome浏览器4.下载蚂蚁加速器https://a1.obqyyh.com/c-5414/a-btygF科学上网工具
 
