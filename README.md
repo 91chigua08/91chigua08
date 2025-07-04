@@ -1,7 +1,7 @@
 91吃瓜最新地址更新于2025年7月4日
 
-今日热瓜：杨颖酒店全裸视频被疯传！公关团队处理后却掀起新浪潮～
-https://answer.udwndivs.xyz/archives/88804/
+今日热瓜：顶流偶像肖战竟遭国企老总包养！同性恋视频流出全网粉丝炸了！
+https://answer.udwndivs.xyz/archives/88996/
 
 91吃瓜最新地址 https://91gua13.com （请复制到浏览器打开）
 
