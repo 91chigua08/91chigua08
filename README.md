@@ -1,13 +1,13 @@
 91吃瓜最新地址更新于2025年7月7日
 
 今日热瓜：震惊全网的伪娘阿红事件最全版 三年约炮千位直男网友直呼炸裂！
-https://91gua13.com/?path=/archives/89221/
+https://91chiguaw01.com/?path=/archives/89221/
 
-91吃瓜最新地址 https://91gua13.com （请复制到浏览器打开）
+91吃瓜最新地址 https://91chiguaw01.com （请复制到浏览器打开）
 
 永久地址（需VPen、科学上网） https://91cg8.com （请复制到浏览器打开）
 
-加入微信扣扣粉丝群 https://91gua13.com?path=/qun.html （请复制到浏览器打开）
+加入微信扣扣粉丝群 https://91chiguaw01.com?path=/qun.html （请复制到浏览器打开）
 
 Telegram官方用户群 https://t.me/jycg_91 （请复制到浏览器打开）
 
