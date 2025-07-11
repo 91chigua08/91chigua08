@@ -1,13 +1,13 @@
 91吃瓜最新地址更新于2025年7月11日
 
 今日热瓜：🔥南京阿红完整视频👉南京伪娘阿红事件合集 60岁老头三年约1691位男子 视频持续更新中
-https://91chiguaw01.com/?path=/archives/89437/
+https://91cgz01.com/?path=/archives/89437/
 
-91吃瓜最新地址 https://91chiguaw01.com （请复制到浏览器打开）
+91吃瓜最新地址 https://91cgz01.com （请复制到浏览器打开）
 
 永久地址（需VPen、科学上网） https://91cg8.com （请复制到浏览器打开）
 
-加入微信扣扣粉丝群 https://91chiguaw01.com?path=/qun.html （请复制到浏览器打开）
+加入微信扣扣粉丝群 https://91cgz01.com?path=/qun.html （请复制到浏览器打开）
 
 Telegram官方用户群 https://t.me/jycg_91 （请复制到浏览器打开）
 
