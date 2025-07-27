@@ -1,9 +1,9 @@
 91吃瓜最新地址更新于2025年7月26日
 
 今日热瓜：boss直聘又涉黄！45分钟撞击女主被开盒！不雅视频流出！
-https://91cgz04.com/?path=/archives/20296/
+https://91cgz05.com/?path=/archives/20296/
 
-91吃瓜最新地址 https://91cgz04.com （请复制到浏览器打开）
+91吃瓜最新地址 https://91cgz05.com （请复制到浏览器打开）
 
 永久地址（需VPen、科学上网） https://91cg8.com （请复制到浏览器打开）
 
