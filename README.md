@@ -7,7 +7,7 @@ https://91cgz05.com/?path=/archives/90455/
 
 永久地址（需VPen、科学上网） https://91cg8.com （请复制到浏览器打开）
 
-加入微信扣扣粉丝群 https://91cgz04.com?path=/qun.html （请复制到浏览器打开）
+加入微信扣扣粉丝群 https://91cgz05.com?path=/qun.html （请复制到浏览器打开）
 
 Telegram官方用户群 https://t.me/jycg_91 （请复制到浏览器打开）
 
