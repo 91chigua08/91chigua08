@@ -1,13 +1,13 @@
-91吃瓜最新地址更新于2025年8月19日
+91吃瓜最新地址更新于2025年8月21日
 
 今日热瓜：独家爆料！短剧圈绿茶女演员张潇予48页PDF曝光 与制片人和男演员发生不正当关系 
-https://91cgz07.com/?path=/archives/91686/
+https://91cgz08.com/?path=/archives/91686/
 
-91吃瓜最新地址 https://91cgz07.com （请复制到浏览器打开）
+91吃瓜最新地址 https://91cgz08.com （请复制到浏览器打开）
 
 永久地址（需VPen、科学上网） https://91cg1.com （请复制到浏览器打开）
 
-加入微信扣扣粉丝群 https://91cgz07.com?path=/qun.html （请复制到浏览器打开）
+加入微信扣扣粉丝群 https://91cgz08.com?path=/qun.html （请复制到浏览器打开）
 
 Telegram官方用户群 https://t.me/jycg_91 （请复制到浏览器打开）
 
