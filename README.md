@@ -10,7 +10,7 @@ Telegram官方用户群 https://t.me/jycg_91
 -
 91吃瓜官方商务： https://t.me/cg91_66 
 -
-失联获取最新地址邮箱： 91cg@pm.me
+失联后获取最新地址邮箱： 91cg@pm.me
 -
 今日热瓜：台球界美少女成员王思诺事件 代勇王思诺恋爱被爆 代勇夺一血被人做局视频！ https://91cgz09.com/?path=/archives/92377/
 
