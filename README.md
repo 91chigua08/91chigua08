@@ -1,8 +1,8 @@
 91吃瓜最新地址发布页
 -
-官网最新地址更新于 2025年8月30日
+官网最新地址更新于 2025年9月8日
 
-91吃瓜最新地址 https://91cgz09.com 
+91吃瓜最新地址 https://91cgb01.com 
 
 永久地址 https://91cg1.com 
 
@@ -23,7 +23,7 @@ Telegram官方用户群 https://t.me/jycg_91
 -
 台球界美少女成员王思诺事件 代勇王思诺恋爱被爆 代勇夺一血被人做局视频！ 
 
-https://91cgz09.com/?path=/archives/92377/
+https://91cgb01.com/?path=/archives/92377/
 
 常见问题：
 -
