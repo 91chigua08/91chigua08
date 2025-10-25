@@ -8,7 +8,7 @@
 
 Telegram官方用户群 https://t.me/jycg_91 
 
-91吃瓜官方商务： https://t.me/cg91_66 
+91吃瓜官方商务： https://t.me/cggf91_66 
 
 失联后如何获取最新地址：
 -
