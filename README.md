@@ -1,8 +1,8 @@
 91吃瓜最新地址发布页
 -
-官网最新地址更新于 2025年12月2日
+官网最新地址更新于 2025年12月5日
 
-91吃瓜最新地址 https://91chigua03.com/
+91吃瓜最新地址 https://91chigua04.com/
 
 永久地址 https://91cg1.com 
 
@@ -27,7 +27,7 @@ Telegram官方用户群 https://t.me/jycg_91
 -
 湖南省人民医院副院长祖雄兵潜规则眼科主任曾琦视频全程曝光 
 
-https://91chigua03.com/?path=/archives/96121/
+https://91chigua04.com/?path=/archives/96121/
 
 常见问题：
 -
