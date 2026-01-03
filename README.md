@@ -1,14 +1,14 @@
 91吃瓜最新地址发布页
 -
-官网最新地址更新于 2025年12月27日
+官网最新地址更新于 2026年1月2日
 
-91吃瓜最新地址 https://91chigua09.com/
+91吃瓜最新地址 https://91chigua10.com/
 
 永久地址 https://91cg1.com 
 
-91吃瓜APP下载地址：https://in7g.scnijqi.com/
+91吃瓜APP下载地址：https://in7g.mothjbs.cc/
 
-91成人导航：https://sdfg.srlkkux.xyz/
+91成人导航：https://sdfg.mpmenwgl.cc/
 
 Telegram官方用户群 https://t.me/jycg_91 
 
